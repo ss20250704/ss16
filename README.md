@@ -18,4 +18,4 @@
 
 总之，选择一个合法、安全且信誉良好的平台，不仅能享受高清正版影片，还能保护个人信息和设备安全，确保更好的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss20250704/ss16 ）</span>
